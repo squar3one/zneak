@@ -8,8 +8,8 @@ Never miss a meeting again
 APP FOR WINDOWS 7/8.1/10
 
 ---------------------------------------
-
-
+tutorial video on how to use the app is uploaded on instagram
+---------------------------------------
 It is recommended to read all instructions before first use 
 
 
