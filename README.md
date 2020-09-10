@@ -1,5 +1,5 @@
 # zneak
-Welcome to Zneak
+Welcome to Zneak.
 Schedule and Record Zoom meetings 
 Never miss a meeting again
 
